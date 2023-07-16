@@ -1,1 +1,1 @@
-# BirthdayCard! - [Coder's way of wishing](https://smilegupta.github.io/HappyBirthdayTanayPratap)
+# BirthdayCard! - [Coder's way of wishing][(https://lee.github.io/)https://lee.github.io/)]
